@@ -31,7 +31,7 @@ If it helps me learn, build, or grow — I’m in.
 
 ## 📫 Contact & Socials
 - GitHub: **[@snehaxd](https://github.com/snehaxd)**
-- LinkedIn: *(https://www.linkedin.com/in/snehagour423)**
+- LinkedIn: *https://www.linkedin.com/in/snehagour423*
 - Gmail: snehagour423@gmail.com
 
 ### 🌱 Always learning. Always leveling up.
