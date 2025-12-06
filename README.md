@@ -20,7 +20,7 @@ and the occasional internal screaming xp
 - Artificial Intelligence & Machine Learning (new quest unlocked)
 
 ## 🎯 Current Mission
-Preparing for **GATE 2027** because I like my challenges *boss-level*.
+Preparing for **GATE 2027** and looking to create an excellent skillset :D
 
 ## 🚀 Open To
 - Internships  
